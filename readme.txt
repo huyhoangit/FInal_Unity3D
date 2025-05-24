@@ -1,1 +1,0 @@
-Vinh ngu đầu bò
